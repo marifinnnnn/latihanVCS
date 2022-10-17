@@ -54,9 +54,11 @@ Kelas :TI.A3.22
 
 ![Screenshot (18)](https://user-images.githubusercontent.com/115518274/196084398-5c467458-3933-4be8-a0f8-5c71785a7c6b.png)
 
-Sekian Tutorial yang saya sampaikna kurang lebihnya mohon dimaafkan karena masih belajar
+Sekian Tutorial yang saya sampaikan kurang lebihnya mohon dimaafkan karena masih dalam pantauan belajar
 
-SEKIAN TERIMA KASIH :)x mm 
+Tak kenal maka tanyakeun
+
+SEKIAN HATUR NUHUN.
 
 
 
